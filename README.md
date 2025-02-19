@@ -1,4 +1,4 @@
-### depressão e bolo 🍰
+### depressão e e transexualidade
 só atualizando pra avisar, eu odeio tudo e todos menos umas 5 pessoas. odeio o ar, odeio meu corpo, odeio a escola, odeio pobre, odeio rico, sou pobre e odeio quase tudo
 
 só nao odeio pelo menos umas 5/6 pessoas. tenho vicio em bolo e refrigerante. bbolo bolo e mais bolopfvr
