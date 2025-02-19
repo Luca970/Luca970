@@ -1,10 +1,10 @@
 ### depressão e bolo 🍰
+só atualizando pra avisar, eu odeio tudo e todos menos umas 5 pessoas. odeio o ar, odeio meu corpo, odeio a escola, odeio pobre, odeio rico, sou pobre e odeio quase tudo
 
-infelizmente essa é a única matéria que eu tenho que prestar atenção porque é a unica que tem utilidade pra min, isso me causa uma leve depressão por nao poder simplesmente ignorar igual 90% da escola. adoro bolo
+só nao odeio pelo menos umas 5/6 pessoas. tenho vicio em bolo e refrigerante. bbolo bolo e mais bolopfvr
 
-bolos grandes, bolos pequenos, bolos de casamentos, bolos resolvem a depressão,  resolvem a minha depressão .
+e sou um tubiron, porque nao né
 
-sao lindos, deliciosos, e eu amo
 <!--
 **Luca970/Luca970** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
